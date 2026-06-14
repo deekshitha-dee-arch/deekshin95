@@ -1,4 +1,4 @@
-# deekshin95
+# deekshitha-dee-arch
 # Hi, I'm Deekshitha Nambala 
 
 🎓 Master of Science in Data Science  
