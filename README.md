@@ -118,3 +118,5 @@ I am actively seeking opportunities in:
 
 💻 GitHub: https://github.com/deekshitha-dee-arch
 
+🌐 Portfolio: https://data-arc-folio.base44.app/
+
